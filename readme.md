@@ -1,0 +1,1 @@
+cheesecake is a type of cake which is very delicious to eat. It comes from ancient Greece. It is a sweet desert consisiting of one or more layers. The main layer cosist of soft fresh cheese, eggs and sugar. 
